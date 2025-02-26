@@ -2,9 +2,7 @@
 
 ![Yan Liu banner](https://github.com/yanliu0504/yanliu0504/blob/main/banner2.png)  
 
-## 📫 Reach out to me on Free time GitHub  [![Visitor Badge](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fyanliu0504&labelColor=%2337d67a&countColor=%23f47373)](https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fyanliu1111)  
-
-🔗 **My GitHub:** [yanliu1111](https://github.com/yanliu1111)  
+## 📫 Reach out me  [![Visitor Badge](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2Fyanliu0504&labelColor=%2337d67a&countColor=%23f47373)](https://visitorbadge.io/status?path=https%3A%2F%2Fgithub.com%2Fyanliu1111)  
 
 <br>  
 
